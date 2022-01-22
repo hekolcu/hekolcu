@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Huseyin Emre Kolcu
+- 👀 I’m interested in the 4th dimention
+- 🌱 I’m currently learning why apples taste funny
+- 💞️ I’m looking to collaborate on the multiverse (I beleive it could be improved)
+- 📫 How to reach me: huseyinkolcu43@gmail.com
